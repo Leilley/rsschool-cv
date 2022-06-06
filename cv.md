@@ -5,3 +5,7 @@
 * [Linkedin](https://www.linkedin.com/in/larysa-y-211a23220/)
 * Location: Minsk, Belarus
 * Phone: +375 29 6079206
+### Languages
+* Russian
+* English (B1-B2)
+
